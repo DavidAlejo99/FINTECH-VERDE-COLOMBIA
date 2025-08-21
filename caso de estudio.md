@@ -6,7 +6,7 @@
 ## **David Alejo**
 ## **Ficha: 3223973**
 
-*Cargos seleccionados:* Gerente de Operaciones (Operaciones) y Chief Technology Officer (Tecnología).  
+# *Cargos seleccionados:* Gerente de Operaciones (Operaciones) y Chief Technology Officer (Tecnología).  
 
 ---
 
