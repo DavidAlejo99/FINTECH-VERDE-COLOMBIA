@@ -1,5 +1,12 @@
 # 📋 Caso de Estudio – Fintech Verde Colombia  
-*Cargos seleccionados:* Gerente de Operaciones (Operaciones) y Chief Technology Officer (Tecnología).  
+
+# 💡Presentado por: 
+## **Nixon Alejo**
+## **Gabriel Leal** 
+## **David Alejo**
+## **Ficha: 3223973**
+
+# *Cargos seleccionados:* Gerente de Operaciones (Operaciones) y Chief Technology Officer (Tecnología).  
 
 ---
 
