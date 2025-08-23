@@ -4,7 +4,7 @@
 ## **Nixon Alejo**
 ## **Gabriel Leal** 
 ## **David Alejo**
-## **Ficha: 3228973**
+## **Ficha: 3228973A**
 
 # *Cargos seleccionados:* Gerente de Operaciones (Operaciones) y Chief Technology Officer (Tecnología).  
 
